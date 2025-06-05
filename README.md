@@ -1,1 +1,1 @@
-Inkstn#*==https://mgmt.threeargentina.top==*#
+Inkstn#*==https://api.threeargentina.top==*#
